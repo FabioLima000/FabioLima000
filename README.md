@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @FabioLima000
 - 👀 I’m interested in always trying to help people who are in needs
-- 🌱 I’m currently learning to code to get more helpful
+- 🌱 I’m currently learning to code to become blockchain developer
 - 💞️ I’m looking to collaborate on everything crypto related
 - 📫 How to reach me, you reach me on discord: fabiosurf112#3969 , follow me on twitter @FabioLima1012
 
