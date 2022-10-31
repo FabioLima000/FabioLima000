@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on everything crypto related 
 - 📫 How to reach me, you reach me on discord: fabiosurf112#3969 , follow me on twitter @FabioLima1012
 - I love BMW and mercedes benz cars 
--   I will change the world
+-   I will change the world with my financial plan 
 
 <!---
 FabioLima000/FabioLima000 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
